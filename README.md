@@ -8,7 +8,7 @@
 
 
 <p align="center">
-    <a href="https://ibb.co/1nqqLqp"><img src="https://i.ibb.co/xsjjDjc/God-Of-Battle.jpg" alt="God-Of-Battle" border="0"></a>
+   <a href="https://ibb.co/fpQ5vWw"><img src="https://i.ibb.co/gT6pV8K/atreus-final.jpg" alt="atreus-final" border="0"></a>
 </p>
 
 
